@@ -1,0 +1,1 @@
+{ "name": "jaiva-dharma-export", "private": true, "dependencies": { "docx": "^9.5.1" } }
