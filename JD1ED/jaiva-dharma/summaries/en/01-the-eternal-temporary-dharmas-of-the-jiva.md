@@ -1,0 +1,13 @@
+<p style="text-align:center;font-weight:bold;color:#000000;">Chapter 1 – The Eternal & Temporary Dharmas of the Jīva</p>
+
+<!-- p001 -->
+In Śrī Godruma in Navadvīpa-maṇḍala, Śrī Premadāsa Paramahaṁsa Bābājī lived in Pradyumna-kuñja, chanting two hundred thousand holy names every day and reading the Prema-vivarta of Śrī Jagadānanda. One day a sannyāsī of Śaṅkara's school came to him, having found no spiritual satisfaction after years of study and renunciation. The sight of a Vaiṣṇava sādhu chanting “Śrī Kṛṣṇa Caitanya, Prabhu Nityānanda!” in tears had drawn his heart to the Vaiṣṇavas, and so he came to take shelter of Bābājī.
+
+<!-- p002 -->
+The sannyāsī asked: What is the true constitutional dharma of the jīvas, and why do different teachers explain it in such diverse ways? Bābājī explained that an object is called a vastu and its eternal nature (svabhāva) is its nitya-dharma. Through contact with other objects the nature of an object becomes distorted; this acquired nature is called nisarga and takes the place of the true nature, just as the solidity of ice takes the place of the liquidity of water. The acquired nature arises from a cause and ceases along with it; it is naimittika-dharma (the occasional function). Those who lack true knowledge of objects mistake temporary dharma for eternal dharma.
+
+<!-- p003 -->
+Śrī Bhagavān is the only real Entity (vāstava-vastu); the jīva is His separated part and māyā is His energy. Knowledge of the interrelationship of these three is pure knowledge (śuddha-jñāna). According to the instruction of Śrīman Mahāprabhu (Caitanya-caritāmṛta, Madhya-līlā 20.108, 117), the jīva is by his constitutional nature the eternal servant of Śrī Kṛṣṇa. Kṛṣṇa is like the sun of the spiritual realm and the jīvas are like the atomic particles of its light: they are one with Him in their spiritual nature, but differ in that He is infinite and they are infinitesimal. The eternal dharma of the jīva is therefore kṛṣṇa-dāsya, service to Kṛṣṇa.
+
+<!-- p004 -->
+The jīvas are a manifestation of Kṛṣṇa's marginal energy (taṭasthā-śakti): their nature is spiritual, but they can come under the control of māyā, whereas Bhagavān is her controller. The jīva is simultaneously different and non-different from Bhagavān (bhedābheda-prakāśa), and the eternal difference is predominant. When the jīva forgets his service to Kṛṣṇa – and this fall does not take place within material time (anādi-bahirmukha) – he is subjected to the tyranny of māyā, his nitya-dharma becomes perverted, and naimittika-dharma is manifested. Nitya-dharma is one, indivisible, and faultless in all situations; naimittika-dharma assumes many forms according to circumstances and the opinions of those who describe it.

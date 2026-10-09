@@ -1,0 +1,13 @@
+<p style="text-align:center;font-weight:bold;color:#000000;">Chapter 5 – Vaidhī-bhakti is Nitya- not Naimittika-dharma</p>
+
+<!-- p001 -->
+Lāhirī Mahāśaya's sons in Śāntipura were worried about the family's reputation, so the younger of them, the learned Devīdāsa Vidyāratna, came to Godruma to bring his father home. He asked him to perform sandhyā-vandanā and the other duties of a brāhmaṇa at home, these being his nitya-dharma. His father replied that what his son calls nitya-dharma is naimittika; the only nitya-dharma is hari-bhakti.
+
+<!-- p002 -->
+Devīdāsa asked how sandhyā-vandanā differs from the practices of vaidhī-bhakti. Lāhirī explained that the rites of karma-kāṇḍa are performed for the sake of liberation, whereas hari-bhajana has no ulterior motive and its fruit is prema. Externally no difference is visible; it lies in niṣṭhā. Ekādaśī removes the sins of the karmīs, but strengthens the bhakti of the bhaktas: the bhakta obtains the principal result, while the karmī is caught in the secondary ones – bhukti and mukti. The śāstras praise the secondary results in order to bring the ignorant to pious deeds and to the sādhus; a person's faith corresponds to his adhikāra, and therefore it is not proper to criticize anyone.
+
+<!-- p003 -->
+Vaiṣṇava dāsa Bābājī told Devīdāsa, who aspired for mukti, that he too had studied Śaṅkara's commentary for fifteen years before realizing that it was a newly fashioned system; the true explanation of the Vedānta-sūtra was given by Śrī Caitanya to Sārvabhauma. The father refused to return to a house opposed to bhakti. Asked why the nine activities of bhakti are not also naimittika, he explained that of those who strive for a higher goal, only those devoted to Īśvara (īśānugata) truly seek paramārtha: for them the jīvas are His servants even after liberation. Those who hanker for mystic powers subordinate Īśvara to the law of karma, and the jñānīs merely imagine His form and then discard it.
+
+<!-- p004 -->
+The worship of the Deity in vaiṣṇava-dharma is nitya-dharma: Bhagavān's sac-cid-ānanda form is revealed in the pure consciousness of the jīva and, by the power of bhakti, is manifested in the Deity. The jñānīs see in the Deity only a material statue. The external procedure is the same, the faith entirely different – and with this Devīdāsa's greatest doubt was dispelled. The next day a Kāzī came, a descendant of Chānd Kāzī, and explained that the soul (rūh) is purified by the development of love (iśhqh), that the relationship between servant and Lord is eternal, and that the Lord has no material form. “Gaurāṅga is our life,” he said.
