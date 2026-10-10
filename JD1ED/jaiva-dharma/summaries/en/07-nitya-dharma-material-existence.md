@@ -1,0 +1,13 @@
+<p style="text-align:center;font-weight:bold;color:#000000;">Chapter 7 – Nitya-Dharma & Material Existence</p>
+
+<!-- p001 -->
+The miserly merchant Caṇḍīdāsa of Saptagrāma and his wife Damayantī were robbed of their property by their own sons. The couple settled in Kuliyā-grāma, began to live honestly and to serve guests and, following the example of the gṛhastha-brāhmaṇa Yādava dāsa, the Vaiṣṇavas as well. Caṇḍīdāsa asked: “What is this material existence?” In Pradyumna-kuñja Ananta dāsa Bābājī answered him.
+
+<!-- p002 -->
+The jīva is either liberated or bound. The bound jīvas have forgotten Kṛṣṇa, and since time without beginning māyā has bound them with the three qualities of nature. In place of the ego of Kṛṣṇa's servant there arises ahaṁtā – “I am a king, a brāhmaṇa, poor” – and mamatā – “my house, my wealth, my children.” The affair set in motion by the conceptions of “I” and “mine” is saṁsāra. The world itself is not false; what is false is this conception, which the jīva adopts in the material world. The jīva stands on the border of both worlds: one who does not forget Kṛṣṇa is drawn into the spiritual realm, and one who turns away is attracted by māyā.
+
+<!-- p003 -->
+Karma-kāṇḍa, brahma-jñāna, and aṣṭāṅga-yoga are improper means, because material existence arose from an offense, and deliverance can come only by the mercy of the One against whom it was committed. The proper means are sādhu-saṅga and surrender (Bhagavad-gītā 7.14); according to the Prema-vivarta, the only infallible method is to chant kṛṣṇa-nāma in the association of bhaktas. The association of bhaktas is beneficial in every respect; no one should associate with nirbheda Māyāvādīs.
+
+<!-- p004 -->
+Bhaktas are either householders (gṛhastha) or renunciants (tyāgī). The gṛhastha-bhakta subordinates his senses, work, and hospitality to the service of Kṛṣṇa, and his life is a festival of kṛṣṇa-nāma, mercy to the jīvas, and service to the Vaiṣṇavas; for the age of Kali this is the most suitable path, and most of Mahāprabhu's associates were householders. Only one whose tendency is turned completely inward should renounce family life: he has no desire for the opposite sex or for wealth, is merciful to all, and has unconditional love for Kṛṣṇa. Otherwise there is danger of falling down; false renunciation arises from deceit and the desire for prestige. The renunciant lives on alms and does not build monasteries; to sin on the strength of the name is nāma-aparādha. All jīvas have a right to vaiṣṇava-dharma, and therefore it is called jaiva-dharma; the one who has more bhakti is superior. Caṇḍīdāsa understood that the jīva is the eternal servant of Kṛṣṇa who has forgotten this and wears the garland of birth, old age, and death.

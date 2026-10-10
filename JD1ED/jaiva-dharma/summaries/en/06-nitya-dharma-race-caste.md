@@ -1,0 +1,13 @@
+<p style="text-align:center;font-weight:bold;color:#000000;">Chapter 6 – Nitya-dharma, race & caste</p>
+
+<!-- p001 -->
+Devīdāsa Vidyāratna, convinced that only born brāhmaṇas can attain the highest goal, brought to Godruma about a hundred paṇḍitas headed by Kṛṣṇa Cūḍāmaṇi, who reproached the Vaiṣṇavas: “Why do you associate with Muslims on the pretext of bhakti?” Vaiṣṇava dāsa Bābājī conducted the debate.
+
+<!-- p002 -->
+Human beings have only one jāti; castes were devised according to language, country, dress, and complexion, and the jīvas are born into the varṇas according to their karma. Muslims are not eligible for the duties of varṇāśrama, but all human beings are eligible for vaiṣṇava-dharma (Bhagavad-gītā 9.32). The defect of low birth is the fruit of prārabdha-karma, which is destroyed by the name of Bhagavān. Two kinds of activity must be distinguished: vyāvahārika (worldly) and paramārthika (spiritual). Spiritual eligibility does not yet entitle one to certain worldly acts: a caṇḍāla who has taken up hari-nāma does not perform yajñas, but he performs the aṅgas of bhakti, which are infinitely greater.
+
+<!-- p003 -->
+Eligibility for karma comes from nature and birth; eligibility for bhakti comes only from śraddhā, faith rooted in the Absolute Truth (Śrīmad-Bhāgavatam 11.20.27–33). Śraddhā is the eternal nature of the jīva; its external symptom is śaraṇāgati with six features: accepting what is favorable, rejecting what is unfavorable, faith in Bhagavān as protector, accepting Him as maintainer, self-surrender, and humility. Śraddhā arises from sukṛti. Nitya-sukṛti, which comes from the association of bhaktas and from devotional activities, yields sādhu-saṅga and bhakti; naimittika-sukṛti from karma, yoga, and jñāna yields enjoyment and liberation. Birth in a Muslim family is the fruit of naimittika-duṣkṛti, faith in ananya-bhakti the fruit of nitya-sukṛti; the one does not depend on the other.
+
+<!-- p004 -->
+One who has become a Vaiṣṇava is no longer considered a Yavana, and one who judges a bhakta by his birth is destined for hell (Padma Purāṇa). A gṛhastha Vaiṣṇava should nevertheless observe the duties of his varṇa and marry within it; in ordinary dealings he does not eat with a Vaiṣṇava of Yavana origin, but he should honor prasāda with him. Brāhmaṇas are of two kinds: by nature and by birth only; a pure Vaiṣṇava is a brāhmaṇa from the absolute point of view. Vaiṣṇava dāsa concluded: “Dharma is one, not two, and it is also known as nitya-dharma or vaiṣṇava-dharma. All other forms of naimittika-dharma taught by the Vedas are merely steps leading to this eternal religion.” The paṇḍitas turned pale and the assembly ended.

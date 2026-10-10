@@ -2,7 +2,7 @@
 
 <!-- p001 -->
 Śrī Harihara Bhaṭṭācārya byl profesorem, který žil v
-
+<!-- tohle je muj prvni commit, Kaliya -->
 <!-- p002 -->
 Agradvīpu. Přijal zasvěcení do vaiṣṇava-dharmy a ve svém domě uctíval Bhagavāna Śrī Kṛṣṇu. V mysli mu však vyvstala pochybnost o vaiṣṇavismu, kterou nedokázal rozptýlit, ani když o ní mluvil s mnoha lidmi. Takové rozhovory jeho mysl ve skutečnosti ještě více rozrušily. Jednoho dne se Harihara vydal do vesnice Arkaṭilā a zeptal se Śrī Caturbhuji Nyāyaratny: „Bhaṭṭācārya Mahāśaya, můžete mi říci, jak dávno se objevila vaiṣṇava-dharma?“
 
