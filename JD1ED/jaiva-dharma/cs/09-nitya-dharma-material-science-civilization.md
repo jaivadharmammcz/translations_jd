@@ -16,7 +16,7 @@ Jednoho dne Paramahaṁsa Bābājī řekl: „Lāhirī Mahāśaya, nyní jste pr
 Lāhirī Mahāśaya odpověděl: „Jste můj parama-guru. Učiňte, prosím, co uznáte za vhodné.“
 
 <!-- p006 -->
-Bābājī Mahāśaya řekl: „Váš domov je ve Śrī Śāntipuře, a proto vás budeme oslovovat Śrī Advaita dāsa.“
+Bābājī Mahāśaya řekl: „Tvůj domov je ve Śrī Śāntipuru, a proto tě budeme oslovovat Śrī Advaita dāsa.“
 
 <!-- p007 -->
 Lāhirī Mahāśaya padl na zem v poklonu a přijal milost svého nového jména. Od toho dne ho všichni nazývali Śrī Advaita dāsa a kuṭīru, v níž bydlel a konal svou bhajanu, nazývali Advaita-kuṭīra.
