@@ -2,9 +2,9 @@
 
 <!-- p001 -->
 Śrī Harihara Bhaṭṭācārya byl profesorem, který žil v
-
+<!-- tohle je muj prvni commit, Kaliya -->
 <!-- p002 -->
-Agradvīpu. Přijal zasvěcení do vaiṣṇava-dharmy a ve svém domě uctíval Bhagavāna Śrī Kṛṣṇu. V mysli mu však vyvstala pochybnost o vaiṣṇavismu, kterou nedokázal rozptýlit, ani když o ní mluvil s mnoha lidmi. Takové rozhovory jeho mysl ve skutečnosti ještě více rozrušily. Jednoho dne se Harihara vydal do vesnice Arkaṭilā a zeptal se Śrī Caturbhuji Nyāyaratny: „Bhaṭṭācārya Mahāśaya, můžete mi říci, jak dávno se objevila vaiṣṇava-dharma?“
+Agradvīpu. Přijal zasvěcení do vaiṣṇava-dharmy a ve svém domě uctíval Bhagavāna Śrī Kṛṣṇu. V mysli mu však vyvstala pochybnost o vaiṣṇavismu, kterou nedokázal rozptýlit, ani když o ní mluvil s mnoha lidmi. Takové rozhovory jeho mysl ve skutečnosti ještě více rozrušily. Jednoho dne se Harihara vydal do vesnice Arkaṭilā a zeptal se Śrī Caturbhuji Nyāyaratny: „Bhaṭṭācārya Mahāśayi!!!!!!, můžete mi říci, jak dávno se objevila vaiṣṇava-dharma?“
 
 <!-- p003 -->
 Nyāyaratna Mahāśaya téměř dvacet let usilovně studoval nyāya-śāstru. V důsledku toho se stal k náboženství značně lhostejným a nerad se nechával obtěžovat náboženskými diskusemi. Jakýkoli sklon k oddanosti projevoval jen tehdy, když prováděl śakti-pūju (uctívání bohyně Durgy).
